@@ -215,4 +215,4 @@ Please:
 
 ---
 A Project By: 
-Roham Hamidi | Liza Akishbaia | Ana Enuqishvili | 
+Roham Hamidi | Liza Akishbaia | Ana Enukishvili | 
